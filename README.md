@@ -1,2 +1,2 @@
 # discord-test-stuff-idk
-idk man
+idk what im doing
